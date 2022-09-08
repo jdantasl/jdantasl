@@ -1,4 +1,4 @@
-### Hi there 👋
+### Jesse Dantas (He/Him) | Software Test Engineer | QA | Automation
 
 Mais de quinze anos atuando em diferentes funções em projetos de tecnologia, com ênfase em Qualidade.
 
